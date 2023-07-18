@@ -1,2 +1,0 @@
-# Mawj-En
-MAWJOOD APPLICATION 
